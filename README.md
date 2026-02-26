@@ -8,3 +8,4 @@ bullrun soon
 market pump
 make it happy
 123abcd
+manage your portfolio
