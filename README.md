@@ -10,3 +10,4 @@ make it happy
 123abcd
 manage your portfolio
 safe play always
+focus on your work
