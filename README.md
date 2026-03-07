@@ -13,3 +13,4 @@ safe play always
 focus on your work
 we want justice
 mark my word
+do it fast
