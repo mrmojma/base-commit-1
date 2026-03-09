@@ -14,3 +14,4 @@ focus on your work
 we want justice
 mark my word
 do it fast
+go to heaven
