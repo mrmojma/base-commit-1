@@ -15,3 +15,4 @@ we want justice
 mark my word
 do it fast
 go to heaven
+pray for him
